@@ -1,1 +1,1 @@
-https://bitipei.net/#/
+https://www.bitipei.site
