@@ -1,1 +1,1 @@
-https://www.download-bitpie.info
+https://download-bitpie.info
